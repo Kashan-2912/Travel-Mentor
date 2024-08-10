@@ -1,5 +1,5 @@
 
-![Logo](https://i.imgur.com/NmNc4aa.png)
+![Logo](https://i.imgur.com/kTY1Zyo.jpeg)
 
 
 # TRAVEL MENTOR
