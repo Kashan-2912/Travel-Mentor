@@ -1,5 +1,5 @@
 
-![Logo](https://4.cdn.travolution.com/dynamic-images/28000-28999/28532/28532_c=(0,0,1200,799)_w=1000_h=333.png?v=20230522122229)
+![Logo](https://4.cdn.travolution.com/dynamic-images/28000-28999/28532/28532_c=(0,0,1200,799)_w=1000_h=233.png?v=20230522122229)
 
 
 # TRAVEL MENTOR
